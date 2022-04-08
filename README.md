@@ -1,1 +1,0 @@
-# COA-midterm-project
